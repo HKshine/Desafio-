@@ -6,3 +6,7 @@ Este script é a porta de acesso ao desconhecido.
 Execute por sua conta e risco. Nenhuma instrução será repetida.
 
 Espero do outro lado! 
+
+###  QUERES FAZER PARTE DA MELHOR ELITE HACKER! 
+
+ATT: destinado a professional! 
